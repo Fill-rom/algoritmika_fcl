@@ -1,0 +1,2 @@
+# algoritmika_fcl
+qwertyuiopasdfghjklzxcvbnm
